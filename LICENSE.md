@@ -1,4 +1,4 @@
-# 
+# advanced Cubase for PC | Cubase for Windows Template | synthesizers + sidechain-compression is the best Cubase for PC | Cubase for Windows template, featuring synthesizers and
 
 
 
